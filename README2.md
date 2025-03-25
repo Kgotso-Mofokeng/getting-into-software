@@ -17,10 +17,10 @@ I will be tackling challegnes, building projects, and sharing lessons learned al
 
 I'm documenting everything on:
 
-[X](https://x.com/mofokengk793)
-[linkedin](www.linkedin.com/in/kgotso-mofokeng-5945382a9)
-[YouTube](UCVbtCNHfTmKfTxm_Kku0w0A0)
-[Instagram](https://www.instagram.com/kgotso5940)
+[X](https://x.com/mofokengk793)\
+[linkedin](www.linkedin.com/inkgotso-mofokeng-5945382a9)\
+[YouTube](UCVbtCNHfTmKfTxm_Kku0w0A0)\
+[Instagram](https://www.instagram.com/kgotso5940)\
 
 :handshake: **Let's Connect & Learn Together**
 
